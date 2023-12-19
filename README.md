@@ -34,4 +34,4 @@ This Professional Certificate contains 13 courses, as follows:
 
 ## Contact
 
-Linkedin: [locnd172](https://www.linkedin.com/in/youssef-ashraf-73a0531b2/)
+Linkedin: [youssef Ashraf](https://www.linkedin.com/in/youssef-ashraf-73a0531b2/)
